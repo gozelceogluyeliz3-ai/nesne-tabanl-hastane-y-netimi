@@ -1,0 +1,1 @@
+# nesne-tabanl-hastane-y-netimi
